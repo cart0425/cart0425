@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @cart0425
+- 👀 I’m interested in GAMING.
+- 🌱 I’m currently learning nothing..
+- 📫 How to reach me : send me email to chwichan2@gmail.com           But I'm sure you will not.
